@@ -8,7 +8,7 @@
   <img src="https://te.legra.ph/file/fb6cf09442c9c3ed74956.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [DP NeTwork](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [DP NeTwork](https://t.me/DP_NeTwork_op)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
