@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://github.com/AnonymousR1025/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
+  <img src="https://te.legra.ph/file/2666b253b3695b467b122.mp4">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
